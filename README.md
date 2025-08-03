@@ -7,9 +7,6 @@
 
 ----  
 
-![211228-Shugerman-Hackers-NFTs-tease_cfuug7](https://img.thedailybeast.com/image/upload/c_crop,d_placeholder_euli9k,h_1688,w_3000,x_0,y_0/dpr_1.5/c_limit,w_1044/fl_lossy,q_auto/v1640724577/211228-Shugerman-Hackers-NFTs-tease_cfuug7)
-
-
 
 
 
